@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hiring4Oracle
+- 👋 Hi, I’m Swati Kapoor @Hiring4Oracle
 - 👀 I’m interested in social networking.
 - 🌱 I’m currently learning how to source candidates via Github
 - 📫 You can reach me via linkedin https://www.linkedin.com/in/kapurswati/
